@@ -1,3 +1,1 @@
-ABDUL HARIS MAULUDY
-
-LINK VIDEO: 
+Abdul Haris Mauludy
